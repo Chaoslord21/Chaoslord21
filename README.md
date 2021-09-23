@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Chaoslord21
+- 👀 I’m interested in pretty much everything
+- 🌱 I’m currently learning C++ C# HTML Python 
+- 💞️ I’m looking to collaborate on gamez lol
+- 📫 How to reach me horusthebold@gmail.com
